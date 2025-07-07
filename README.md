@@ -20,4 +20,4 @@
 
 所有资源均来自公开平台，合法合规，保证无风险观看。收藏本页，作为你的稳定日本AV免费入口，每天更新，永久免费，简单便捷。无论何时，你都能找到最新、最全的日本AV资源，尽享最佳观影体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/54735 ）</span>
